@@ -1,2 +1,0 @@
-# salihliwebtasarim.com
-salihliwebtasarim.com
